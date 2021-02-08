@@ -3,6 +3,8 @@
 #### Multifunkciós fözőedény
 - Pulled Pork
 - Rakott Krumpli 
+- Bolognai spagetti
+
 ## Főzés 
 - Hagymakrém leves
 ## Sütés
